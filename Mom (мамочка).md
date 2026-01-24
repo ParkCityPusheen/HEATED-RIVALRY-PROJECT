@@ -92,7 +92,7 @@ Yuna lifts her wooden spoon, gracefully pointing it at Ilya then her son, "Damn 
 
 "Oh." Yuna squaks, "Are the two of you using protection?"
 
-Shane spits gingerale across the dinner table, "Holy shit—*mom!*"
+Shane spits ginger ale across the dinner table, "Holy shit—*mom!*"
 
 David's bottom jaw anchors into the mahogany tabletop.
 
@@ -100,7 +100,7 @@ Ilya's face splits into an insidious grin, "Ah. Most days. Or do I say *most* of
 
 David points an accusatory finger at Ilya, jabbing, "That right there, that's the Ilya I've known."
 
-His boyfriend lifts his arms, and Shane tucks away his baffled-ness to admire bulging biceps and triceps across Ilya's impressive wingspan for singualar second, "The one. And. Only. Mr. Hollander."
+His boyfriend lifts his arms, and Shane tucks away his baffled-ness to admire bulging biceps and triceps across Ilya's impressive wingspan for singular second, "The one. And. Only. Mr. Hollander."
 
 "David." his father grunts.
 
@@ -110,7 +110,7 @@ Yuna snorts and taps excess pasta sauce from the spoon before placing it across 
 
 "Cannot be not enough." Ilya shrugs, "Shane has wild side too, you know?"
 
-David eyebrows launch into the cieling, "Oh, does he?"
+David eyebrows launch into the ceiling, "Oh, does he?"
 
 Dread spreads in Shane's gut and he points at Ilya this time, "Absolutely not, behave yourself."
 
@@ -118,4 +118,4 @@ Ilya pouts.
 
 "I can't believe this." Yuna whispers.
 
-"You said that last time." Ilya reminds her, then replaces the spoon with the pot's lid and places the wooden spoon on the utencil mat next to the range.
+"You said that last time." Ilya reminds her, then replaces the spoon with the pot's lid and places the wooden spoon on the utensil mat next to the range.
