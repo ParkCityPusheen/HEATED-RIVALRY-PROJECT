@@ -90,7 +90,7 @@ Yuna lifts her wooden spoon, gracefully pointing it at Ilya then her son, "Damn 
 
 "I can't believe this still. I mean, I guess I'm just stuck on the *Ilya Rosanov* I know in tabloids." David guffaws, rubbing a hand down his face and peaking at Shane then Ilya through his fingers,
 
-"Oh." Yuna squaks, "Are the two of you using protection?"
+"Oh." Yuna squawks, "Are the two of you using protection?"
 
 Shane spits ginger ale across the dinner table, "Holy shit—*mom!*"
 
