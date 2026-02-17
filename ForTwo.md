@@ -507,7 +507,7 @@ Rose covers her mouth. Well then.
 
 Ilya seems to consider what his husband is saying as he drains away his coffee (how has he nearly finished the whole fucking cup?) and responds carefully,
 
-"Good. I am your husband. You do not need brain when I am around. You use it too much anyway."
+"Good. You do not need brain when I am around. You use it too much anyway."
 
 Rose grins and a sharp breath that was nearly a snort escapes her lips: God, Shane is just a fucking girl like her.
 
@@ -685,7 +685,7 @@ Rose bites her bottom lip to keep herself from grinning, "Shanya?"
 
 So then Svetlana calls Shane, Shanya, and Ilya: "Ilyushka."
 
-Ilya's shoulders tense a bit before he shoots to his feet, smiling, but the expression fails to reach his eyes, "Do not call me that."
+Ilya's shoulders tense a bit before he shoots   to his feet, smiling, but the expression fails to reach his eyes, "Do not call me that."
 
 "Right, sorry." Rose looks away; he might belong to Shane but he's still six foot three and she definitely took Shane away from him at one point. They've never discussed it but she can always tell the hard feelings are there regardless of whether or not he likes her. He's clearly not quick to let go of hard feelings. 
 
@@ -704,3 +704,55 @@ Ilya goes without a single word, he only makes eye contact with Svetlana for a f
 "Looks like there needs to be a talk."
 
 ---
+
+Ilya has been openly fussed at by Shane for going onto their patio to smoke a cigarette by the time Svetlana and Rose join them; Shane's set the table, perfectly, and hands each on of them a small salad of microgreens and shaved cabbage with a light dressing. It's refreshing, maybe a bit too much considering the warring winter weather just outside.
+
+Soup might've felt more welcoming, what with the frost Ilya eminates himself.
+
+He's a lot like the storm outside. Cold, unwelcoming and unrelenting, from the outside of course but she's seen the otherside of him; the side that's warm like the teracotta tiles that encapsulate his kitchen. Warm like his second cup of coffee tucked against his palm as he eyeballs the salad his husband hands him with a shy smile. He doesn't spare Rose a glance, but Svetlana is seated directly ahead of him, and Shane infront of Rose, the only way that these arrangements would really make sense. Svetlana's eyes are heavy on him, narrowed and critical, and Ilya avoids it occasionally—his jaw goes taught after every bite of his salad, every swallow of coffee,
+
+"Shane," he drawls after he finishes the salad, "will you bring me some water?"
+
+And Svetlana is right on the Russian's ass when Shane eagerly departs to fufill the request:
+
+"Talk." she growls, *"Now."*
+
+"About what, Sveta."
+
+Svetlana doesn't say a damned word, she only drags a perfectly manicured, Russian of course, fingernail from Ilya, to Rose, "If she bothers you, you should say something."
+
+Ilya, as stated previously, is unrelenting: "She does not."
+
+Svetlana's head angles upwards a bit in a very Slavic show of disapproval, but Rose hears him loud and clear.
+
+It's the way he says it so carefully: *she* does not bother me.
+
+So it isn't *her* that has him so rigid, the same way it wasn't her that made Shane so obviously gay when she and him were dating. Maybe, she wonders, it's the *it.* Shane's it was being gay. Ilya's...
+
+"Is it because we dated?" she wonders aloud.
+
+Ilya snorts, "Attempted."
+
+Rose nearly winces; it's so spiteful and *boyish.*
+
+"Is this okay?" Shane asks Ilya from the fridge, "I can't find your waterbottle."
+
+"The Porsche one?"
+
+Shane nods and pads over to the table, standing close enough that Ilya wraps a long arm around his waist and pulls him in close. Shane is whisked away in the motion, hands grabbing at Ilya's forearm,
+
+"Ilya..." He sputters, turning pink to his ears when Ilya kisses his torso.
+
+"I think I left it in the gym. You will get it for me, da?"
+
+Shane nods, "You have to let me go first."
+
+Ilya does, slowly, "Mmm...no, probably later."
+
+That earns him an aggresive pat on teh head.
+
+"Oh, I'll take that one Shanya." Svetlana cooes reaching across the table for the glass bottled water, "Hurry, I want to try your chicken."
+
+"Okay, okay, just need one second!" Shane grins before speeding off after passing it to her.
+
+"No running!" Ilya groans, his voice is cavernous and she's sure it vibrates against Svetlana's ears the same way it does her.
