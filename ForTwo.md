@@ -1,8 +1,8 @@
-[JULY-AUGUST-SEPTEMBER-OCTOBER]
+﻿[JULY-AUGUST-SEPTEMBER-OCTOBER]
 
 There had always been a shitload of things for Shane Hollander to consider, and it had been evident when she and Shane had begun their failed attempt at courting each other. Even more so as Rose had slowly gotten closer to him. He was a natural at shouldering it all, remembering small details, panicking about the things he couldn't control, steamrolling over everything else in his inevitable perfection conquests. She'd noticed Shane often kept his plate unnecessarily full, but in his own design of life it worked out for him; his greatest performances and failures had been executed under solar systems worth of stress and expectation.
 
-So, seeing him swimming in his *husband's* sweater, just days after their wedding, nearly grinning with a head full of undone hair, blinking behind the thin lenses of his glasses, she realizes she's never once actually seen him... well...
+So, seeing him swimming in his *husband's* sweater, just weeks after their wedding, nearly grinning with a head full of undone hair, blinking behind the thin lenses of his glasses, she realizes she's never once actually seen him... well...
 
 Happy.
 
@@ -10,13 +10,11 @@ Happy.
 
 Shane's grin shrinks into something shy and special, "Four-inch inseam," he stammers, "They are kind of small looking with this, uh—" she nearly gets cavities when the skin beneath his freckles dust pink, "—in Ilya's shirt."
 
-Shane is lean himself, built very much like a wildcat, lithe and sinewy, agile and sporting muscle noticeable underneath his skin as he moves quietly around a room. By no means is this man *small.* But Ilya? His husband?
+Shane is lean himself, built very much like a wildcat, lithe and sinewy, agile and sporting muscle noticeable underneath his skin as he moves quietly around a room. By no means is this man *small.* Hell, choosing to pursue him was so terribly easy because of how bulky he was, how small he made her feel. But Ilya? His husband?
 
-She's not surprised at his taste, at least in regards to Ilya's physical anatomy.
+She's not surprised at his taste, at least in regards to Ilya's physical anatomy, Ilya's a different type of beast.
 
-She shakes herself mentally: no she will not sexualize her best friend's husband, not right now at least, "I think he'd like this a lot." she announces, then presents him a snarky smirk and her voice smolders, 
-
-"He's a pervert."
+She shakes herself mentally: no she will not sexualize her best friend's husband, not right now at least, "I think he'd like this a lot." she announces, then presents him a snarky smirk and her voice smolders, "Walking around in hoochie-daddy shorts during a snowstorm and your husbands number? I think he'd devour you."
 
 Shane rolls his eyes and gestures for her to come in, "Come on, it's freezing."
 
@@ -28,11 +26,23 @@ They both stare at the front door.
 
 Rose shivers now that she's passed the threshold of their front door, rubbing at her arms nervously over her heavy coat; Shane doesn't seem any more bothered by her being there than if she weren't, but she still can't quite shake the feeling that she was imposing on a space that didn't belong to her. He'd mentioned Ilya was quite alright with her hunkering down for the storm with them, encouraging her by then informing her that Ilya was leaving in the throes of the night to recover his own company also affected by a sudden mid-fall winter storm. Rose sucks in torturous breath from between her teeth. She knew Shane enough to understand hospitality wasn't something he supplied freely, but Ilya was still very much a mystery to her.
 
-Was he actually okay with this arrangement?
+The two of them, Rose and Ilya, had been around each other at reasonable length, though somewhat unsuccessfully. Ilya was an excellent socialite; he embraced his gift of gab when he needed to, particularly in front of Shane while Rose was present. Ilya could map a person's interior from a single glance; Shane was still learning to read the shoreline, so he would usually miss those perceptive moments. Moments where Shane would find himself yapping away to Rose and realize it, attempt to include Ilya, if he wasn't already, and then Ilya would expertly dismiss Rose.
 
-"Alrighty, I want a tour now, of House Hollanov."
+If they went out to eat together Ilya would maybe offer a hum of approval, maybe some kind of curt, Slavic acknowledgement but nothing past the bare minimum. And their poor Shane hadn't noticed any of it. Rose felt he was too overwhelmed at being able to be with two people he was actually fond of at once.
 
-Shane's face flushes more deeply and Rose can't help reaching out to cup his cheeks, "House Hollanov?" he echoes, blinking innocently against her palms before she drops her hands to remove her coat,
+She shakes her head, standing there stupidly, with Shane looking at her just as cluelessly, the cutest little smile pressed neatly against his freckled face, then steps into his and Ilya's home.
+
+It was even worse with Shane's best friend Hayden, who there'd apparently been an attempted intervention for already that Shane swore went well... but considering Ilya did nothing but *breathe* when Hayden Pike was around, and only thaw from his very Russian demeanor when his husband's eyes met his own, she was sure maybe this was just another social cue Shane wasn't picking up on.
+
+Rose sucks in a rough breath; Ilya Rosanov didn't hate her though, not as much as he hated Hayden Pike at least. And if he did he wasn't telling her why, and Shane thought they were sweet as pie for all the both of them knew.
+
+"Rose?" Shane squeaks, shuffling awkwardly against the cold air blasting him through the open door.
+
+Was Ilya actually okay with this arrangement?
+
+"Alrighty, I want a tour now, of House Hollanov." she bleats, desperate to not make herself any more anxious than she already is. As soon as she's past him Shane carefully closes the front door and shivers roughly, rubbing his hands together and wiping snow off his thighs and shins.
+
+Shane's face flushes more deeply when he straightens up to speak to her and Rose can't help reaching out to cup his cheeks, "House Hollanov?" he echoes, blinking innocently against her palms before she drops her hands to remove her coat,
 
 "Haven't you seen the posts about you guys? It's the universally recognized title for the two of you as a couple on most platforms. Hollander-Rosanov, *Hollanov."*
 
@@ -129,159 +139,6 @@ Secretly, in her head, Rose had her filed away neatly alongside Ilya. She was th
 *"He only asked to invite one person, and she's not his ex or anything but I know they have a long, intimate history. Rose, he asked if she could be there like I would deny him the singular person he's only ever asked for. I can't think of anyone else Ilya has mentioned by name from his past but Svetlana, and he feels like I would deny him that? Because they had sex?"*
 
 She eyeballs Shane, blabbering about the texts Ilya had sent, three in succession, and compares his voice from then and now. Heavy then and now soothing, weightless even.
-
-*"He's never fussed about our relationship... why would he think he can't have a close one of his own with the one person who really knows him? What am I, a monster? Am I making him feel isolated?"*
-
-She had done her best to calm Shane, and it worked, but he had really looked like he wanted to cry.
-
-"Ugh, I'm so glad it won't just be a sweaty meat fest."
-
-And, she truly is. Svetlana, Shane, and Ilya are breathtaking, but two particularly hot Russian foreigners with accents thick as tar and egos just as viscous and sweet, and Shane being fussed over between the two? Ideal.
-
-"Sweaty?" Shane turns his nose up, "We're hardly ever sweaty."
-
-Rose scoffs, her voice lilts, "Two professional, male, athletes... hardly ever... sweaty."
-
-"Only when we're—"
-
-"Fucking?" Rose inserts, winking, and biting her bottom lip suggestively,
-
-Shane Hollander turns pink like some virgin high school girl, "Yes but that's—"
-
-"An absolute truth that you can't deny?"
-
-"You're impossible." He sighs, and draws up an exasperated breath that billows across the island and smells like peppermints, "C'mon Rose, I'll show you the room you're staying in."
-[JULY-AUGUST-SEPTEMBER-OCTOBER]
-
-There had always been a shitload of things for Shane Hollander to consider, and it had been evident when she and Shane had begun their failed attempt at courting each other. Even more so as Rose had slowly gotten closer to him. He was a natural at shouldering it all, remembering small details, panicking about the things he couldn't control, steamrolling over everything else in his inevitable perfection conquests. She'd noticed Shane often kept his plate unnecessarily full, but in his own design of life it worked out for him; his greatest performances and failures had been executed under solar systems worth of stress and expectation.
-
-So, seeing him swimming in his *husband's* sweater, just days after their wedding, nearly grinning with a head full of undone hair, blinking behind the thin lenses of his glasses, she realizes she's never once actually seen him... well...
-
-Happy.
-
-"Those are scandalous, girl." Rose gapes, wincing at how shrill her voice sounds in contrast to Shane's warm and cozy appearance.
-
-Shane's grin shrinks into something shy and special, "Four-inch inseam," he stammers, "They are kind of small looking with this, uh—" she nearly gets cavities when the skin beneath his freckles dust pink, "—in Ilya's shirt."
-
-Shane is lean himself, built very much like a wildcat, lithe and sinewy, agile and sporting muscle noticeable underneath his skin as he moves quietly around a room. By no means is this man *small.* But Ilya? His husband?
-
-She's not surprised at his taste, at least in regards to Ilya's physical anatomy.
-
-She shakes herself mentally: no she will not sexualize her best friend's husband, not right now at least, "I think he'd like this a lot." she announces, then presents him a snarky smirk and her voice smolders, 
-
-"He's a pervert."
-
-Shane rolls his eyes and gestures for her to come in, "Come on, it's freezing."
-
-"Weird isn't it," Rose sighs, reluctantly letting Shane take her bag and suitcase from her, "this storm."
-
-"Could be. Maybe we're straining the planet more than we think." Shane adds thoughtfully while patting the snow off of her belongings, "You know, like global warming and stuff."
-
-They both stare at the front door.
-
-Rose shivers now that she's passed the threshold of their front door, rubbing at her arms nervously over her heavy coat; Shane doesn't seem any more bothered by her being there than if she weren't, but she still can't quite shake the feeling that she was imposing on a space that didn't belong to her. He'd mentioned Ilya was quite alright with her hunkering down for the storm with them, encouraging her by then informing her that Ilya was leaving in the throes of the night to recover his own company also affected by a sudden mid-fall winter storm. Rose sucks in torturous breath from between her teeth. She knew Shane enough to understand hospitality wasn't something he supplied freely, but Ilya was still very much a mystery to her.
-
-Was he actually okay with this arrangement?
-
-"Alrighty, I want a tour now, of House Hollanov."
-
-Shane's face flushes more deeply and Rose can't help reaching out to cup his cheeks, "House Hollanov?" he echoes, blinking innocently against her palms before she drops her hands to remove her coat,
-
-"Haven't you seen the posts about you guys? It's the universally recognized title for the two of you as a couple on most platforms. Hollander-Rosanov, *Hollanov."*
-
-Shane shakes his head, turning to hang her coat from a tall brass coat hook to the right of his front door, "I promised Ilya I wouldn't look at any social media until the start of next season."
-
-"Good," Rose scoffs, "not that there's been anything bad or that you should even care; but people are super receptive to the two of you. I'm actually very pleasantly surprised Shane."
-
-Again, she thinks of the worries he'd prattled off to her leading up to his wedding; losing endorsements, losing favor with the young heteronormative athletes who looked up to him, fans who'd decide poor plays were just chess-piece moves to hand Ilya's team a win. There had been so many he'd sounded out of breath listing the rest, validating the hate he'd receive by justifying each point with smothering empathy. And yet here he stands, one hand still on the coat hook, shoulders loose beneath the weight of Ilya's sweater, not a single crease between his brows. She watches him take her in, easy and unwound, and the relief of his demeanor catches her off guard; she has never once seen him look this light.
-
-His tiny smile reappears before stretching into a proud, toothy grin, "Well that's good."
-
-"Of course it is, now show me to my room!"
-
-Shane giggles and spins around on his slipper-ed and socked feet and launches into a monologue. Rose soaks in his build from behind; he's twice her width and bearing a taper from his ribs and waist to his hips that runway models would certainly do indescribably evil deeds to attain,
-
-"I wouldn't let Ilya sell his house on the other side of town, but he insisted we go house shopping together. He's had most of my firsts and wanted the 'first-time-buying-a-home-and-moving-in-together' one too." Shane groans as they enter their living room, stopping just before a disgustingly expensive-looking throw rug,
-
-"I could only deny him for a few months though, so," He shrugs and makes a grand gesture at the space.
-
-"Can't tell if I'm more surprised that you gave in or that he didn't give up." Rose snorts, to which Shane rolls his eyes,
-
-"It's only a five bedroom, six and a half bath house—well, uh, there's an attached garage with a finished apartment above it so our parents can stay whenever and as long as they want."
-
-Rose tilts her head; she'd been certain both of Ilya Rosanov's parents had passed, considering the charity founded in ode to his mother, and his father having died a season ago.
-
-"Do his parents come out here too?" she asks, carefully, because she's not sure.
-
-Shane jumps a bit, fidgeting nervously, "Well no, both of his passed. I meant—I mean just mine. He's been calling Mom *mom* lately so, I guess..."
-
-Rose wants to hug him so tightly that his head pops off, but instead she just rubs his shoulders, "Cavities. I'm going to get cavities because of how sweet you are, Shane Hollander."
-
-Those long lashes of his flutter, before he whines bashfully, "I don't know. But anyway this is the living room, and the kitchen is just past that wall."
-
-Their living room is humble, encapsulated in wood paneling that's cured in a warm stain with thick wall-to-wall beams overhead, their furniture is leather, midnight black with green throw pillows and the biggest Russian flag she'd ever seen in her life hanging against the wall behind the largest couch in their sitting area. Rose thinks for a moment it's rather patriotic for a person who almost never speaks about his homeland even when asked on camera. She drags her feet through the brown fur rug beneath them and considers taking her socks off to feel the fibers against the soles of her feet,
-
-"What is this?"
-
-Shane glances down at his feet and then Rose's, "Some kind of synthetic fur. Ilya wanted a fake bear pelt."
-
-"Ew." Rose side-eyes Shane, cutting him off clean before he can get out his next sentence, "But, obviously that would never happen."
-
-"Not a hot day in fucking hell." Shane quips before stalking off to the kitchen area; here he stops just before his kitchen island and watches Rose curiously poke about.
-
-It's like the living room, spacious and efficient with nothing excessive, a formal kitchen table, a bar attached to the island that could seat six or seven people, the kitchen itself had a setup professional chefs would probably kill for. The Hollanov's kitchen is a warm, terracotta-like orange, with matching Spanish tiling brandished across its floor—upon further inspection most of their kitchen is rather Spanish influenced,
-
-"Did this Spanish inspiration perhaps come from your honeymoon?" she presses expectantly.
-
-Shane nods, "We loved the architecture in Spain, especially the churches. We brought it home because..." he looks fondly around the room, "We wanted to feel how we felt there at home. It's like no one even knew we existed. No matter how obnoxious Ilya was being. We were normal, in love, and in public."
-
-"Wait okay, so how even was it?! You hadn't texted me once. Bitch, it's been a whole four weeks since your wedding!"
-
-He holds his hands high about his head, "We agreed to not use our phones unless it was for work or checking in with Mom!"
-
-"I mean I'm not thinking I'm special or anything, but like *spill?"* Rose lifts her chin indignantly.
-
-He fractures into thousands of pieces of sunshine almost instantaneously, he draws her in when she slides into a plush barstool while listening to his romantic elopement. Rose's forearms find her seat's armrests with childish excitement she can barely contain, and they slip once, twice, as she wriggles into a comfortable position, ready to quite literally inhale whatever Shane is about to tell her.
-
-It's one of her favorite things, learning about Shane.
-
-He begins in the private jet booked for them by the Centaur's owners, how they "slept" the whole flight in an actual bed, (he's a pervert is what Rose thinks but if she was Ilya Rosanov flying off to some far away land with Shane Hollander she would've ravished him too, please be so for-real).
-
-They spent hours in the hotel's private spa, they ate fruits, and light desserts, drank so many champagne flutes he'd developed an affinity for them—and Shane Hollander did *not* participate in casual drinking, so Rose wondered just how good those mimosas had been.
-
-They, and she nearly grips her heart through her ribcage and rips it out of her chest when he sputters explaining this, held hands walking through the streets of Spain, in four different cities, with their eyes glued to churches and corner stores. Allegedly the Spaniards are as infatuated as Shane is about Ilya's thickass accent, and they're stopped left and right whenever his husband exclaims too loudly at something, or asks for directions or the history about a certain someplace they'd seen,
-
-"We went on our first date in Madrid," he nearly gushes, leaning across the kitchen counter opposite of Rose, "Ilya got us a reservation at some Michelin restaurant, we had a private shopping session beforehand and these ladies took, like three hours picking a week's worth of clothes out for us. Except it was like they thought we'd be changing every quarter of the day. But we both looked great, and Ilya was so sweet. He normally does this, but I felt—" Shane stops, then starts again,
-
-"It was amazing, we were seated in like, the middle of the restaurant. Rose, nobody cared." His eyes squint because he smiles so fucking hard, "He was holding my hand and kissing me, feeding me food, it was great."
-
-The words rush out of him like a riptide; they're so simple and small but they dig into her stomach as they flood her ears and drag her down into his experiences. She realizes at a point that he's not even speaking about Spain itself but rather the two of them while in Spain. Shane is fascinated by public displays of affection between himself and his lover of ten-fucking-years, impressed when no one looks at him sideways or sighs too loudly, that he can't hear snide remarks as he walks past other men in the street. He's shocked by how loudly Ilya loves him in the presence of others and it seems like he still can't quite wrap his mind around it.
-
-How long had he lived suppressed, and alone, and bursting with all of this love and joy and hope? Seconds scrape by as she realizes just how privileged she'd been, loving out loud and boundless, while Shane was standing here in his kitchen beaming about his first date ever at thirty. With the man he'd been secretly in love with for nearly a decade. That they held hands on the way to brunch and lunch and dinner, that they kissed with their toes covered in sand, hugged under blinding sunlight, flirted in the fucking streets.
-
-All of these *regular* things, listed off like heavenly privileges to Shane and it makes Rose go rigid in the bar chair.
-
-Shane's phone vibrates and Rose is shucked out of her guilt, "Ilya just got Svetlana, apparently it's getting worse. Whole airport was on backup generators; they're on their way back now."
-
-Rose pops up from the barstool, "Svetlana is still here?!"
-
-"She is." Shane answers, smiling still.
-
-"She's coming here? Me, you, Ilya, and Svetlana?"
-
-Shane shuffles around a bit, fucking cutie, "Yes. Me, you, Ilya, and Svetlana."
-
-"I hope this storm lasts for at least a week." Rose declares, breathlessly while gripping the edge of his marble countertops; she feels the compromising trepidation and invasiveness ease away all at once.
-
-Svetlana Vetrova. Hockey freak and fan *extraordinaire,* Ilya Rosanov's keeper, and ever so gentle with his husband, Shane. Rose can picture a brief moment between Shane and Svetlana perfectly in her mind, flickering from frame to frame on their wedding night. She was in a backless, fit and flare number, smoothing down the edges of its skirt before lifting her hands up to run across the width of Shane's shoulder.
-
-Svetlana was grace and gab and genius and Shane had melted right into her touch nearly as if she was Ilya himself, and he wasn't too far behind them, eyes softening at the sight so much that Rose had to blink hard and remind herself who he was.
-
-Secretly, in her head, Rose had her filed away neatly alongside Ilya. She was the closest thing Shane's husband had to family, or at least that's what Rose told herself. Svetlana was the only person Ilya had verbally requested be there at their wedding. Shane had mentioned this, stressed of course, itching internally because his fiancé (at the time) had sought permission in doing so. Something about his and Svetlana's "physical relationship" being something that might make Shane uncomfortable.
-
-*"He only really asked to invite one person himself, and she's not his ex or anything but I know they have a long, intimate history—Rose, he asked if she could be there like I would deny him the singular person he's only ever asked for. I can't think of another person Ilya has mentioned by name from his past but Svetlana, and he feels like I would deny him that? Because they had sex?"*
-
-She eyeballs Shane, blabbering about the texts Ilya had sent, three in succession, and compares his voice from then and now. Heavy and soothing.
 
 *"He's never fussed about our relationship... why would he think he can't have a close one of his own with the one person who really knows him? What am I, a monster? Am I making him feel isolated?"*
 
@@ -555,7 +412,7 @@ Ilya leans forward, pressing himself deeper between Shane's legs, "I already kno
 
 "When did I say that?" Shane hisses, shoving Ilya away with his hands spread across the blonde's chest, "You can touch me, we're home."
 
-"With two guests. You won't let me at your parents' and you want me to believe that you will here, with other people?"
+"With two guests. You won't let me at your parents' and you want me to believe that you will, here, with two guests?"
 
 "Well, it's different with those two, they—"
 
@@ -575,11 +432,11 @@ Rose and Svetlana peer around the kitchen's threshold, gripping the molding, Ily
 
 "And what the fuck do you mean by that?"
 
-"Women are like little rats, they will admit it, every time. They will hide in the walls and watch and deny when they are caught."
+"Women are like little rats, they will admit it, every time. They will hide in the walls to watch and deny when they are caught."
 
 "Svetlana and Rose aren't like that." Shane snaps, eyes narrowing, "And you shouldn't—!"
 
-Ilya grabs Shane by the collar of the sweatshirt he's stolen from Ilya's half of their closet and drags him across the kitchen tiles towards the hallway, face stone-cold, eyes flared. Shane's feet trip trying to keep up. He's stalking across the opening with his shoulder squared, purposefully, his arm bent behind him to leash his husband along.
+Ilya grabs Shane by the collar of the sweatshirt he's stolen from Ilya's half of their closet and drags him across the kitchen tiles towards the hallway, face stone-cold, eyes flared. Shane's feet trip trying to keep up. Ilya's stalking towards them with his shoulder squared, purposefully, his right arm bent behind him to leash his husband along.
 
 He knows.
 
@@ -589,7 +446,7 @@ There's no telling when he caught on either, maybe when she had peeked at him on
 
 Svetlana peeks up at Rose where she'd assumed a crouch to spy alongside her and as their eyes meet they scramble for the living room. Their socked feet slip and slide in an epic struggle for purchase across the hardwood floors and surely catching the light and Ilya howls in victory,
 
-"See, four little paws, you hear them running to the living room now?"
+"See, four little paws, you hear them running to the living room now? *Rats.*"
 
 "What?" Shane is tugging at Ilya's wrist, not paying attention at all, "Ilya stop grabbing the sweater like that, you're going to stretch out the neck!"
 
@@ -605,7 +462,7 @@ It settles perfectly just as Ilya barrels into the living room with Shane a seco
 
 "Is the movie so good you have lost your breath?" He exclaims with arched brows,
 
-"Yup." Rose squeaks, and Ilya's eyes sharpen on her, "So good, you just wouldn't get it."
+"Yup." Rose exclaims, and Ilya's eyes sharpen on her, "So good, you just wouldn't get it."
 
 Svetlana groans, leg gripped to her chest.
 
@@ -749,10 +606,62 @@ Shane nods, "You have to let me go first."
 
 Ilya does, slowly, "Mmm...no, probably later."
 
-That earns him an aggresive pat on teh head.
+That earns him an aggresive pat on the head and Shane goes red to his ears.
 
 "Oh, I'll take that one Shanya." Svetlana cooes reaching across the table for the glass bottled water, "Hurry, I want to try your chicken."
 
 "Okay, okay, just need one second!" Shane grins before speeding off after passing it to her.
 
 "No running!" Ilya groans, his voice is cavernous and she's sure it vibrates against Svetlana's ears the same way it does her.
+
+There's about thirty seconds of silence before Svetlana pushes her salad bowl to the edge of her placemat in preperation for their main entree, then she takes a small gulp of the water Shane's given her,
+
+"Ilya is in the galiant process of self improvement." She states with little to no emotion, Ilya watches her with a look of mild interest,
+
+"Yes." he slurs, "Self improvement."
+
+Svetlana meets his blueish irses with her green ones, "For Shane."
+
+Ilya nods, his eyes drop for a moment, then find her again, "For Shane, and the future I want."
+
+Rose wants to tuck her puzzled expression behind her teeth with the healthy micorgreens her molars are pulverizing, but it's near impossible,
+
+"That's great Ilya." she offers in earnest.
+
+"Isn't it? He can even tell you what he told me via text or I can just read the thread aloud."
+
+Ilya looks like he might suddenly jump across the dinner table and strangle Svetlana.
+
+"Don't be a bitch." He bites, his face morphs into an expression baring only aggression, one Rose hasn't seen before.
+
+She finds herself intimidated even more than he usually makes her and she fucking hates it.
+
+Svetlana is unpeturbed, and sips her water again, "Why not? You taught me how to be."
+
+"Oh, you are just so funny tonight, aren't you Svetlana." Ilya croaks.
+
+"You're too old to be emotionally stunted." she counters,
+
+"I am not emotionally stunted." He trips on *stunted,* and his jaw clenches hard after the last syllable.
+
+"You want me to hold you accountable for your love, and I am doing so. I also actually like Rose, I don't care for Hayden, but Rose has done nothing wrong."
+
+Rose grabs for the lifeline Svetlana may have meant to throw,
+
+"Did Hayden do something?"
+
+Ilya sneers, smirking, and his voice becomes thick with agitation, "Besides insult me and belittle me, not realizing he is doing the same thing to Shane? Then apologize to Shane and not me like it is nothing every time." Ilya shovels salad into his mouth and speaks through it, "I would not constantly insult Svetlana's chosen if I had an issue with them; I would beat them within inch of their life and leave it at that."
+
+"And you would be deported." Svetlana adds,
+
+Ilya rolls his eyes, "From the United States, maybe."
+
+Rose sticks to the topic, pulling her hair back from over her shoulders, she leans forward a bit, rushing before Shane returns, "What do you mean he insults you?"
+
+"You have been sitting right there when he does this, Rose Landry." Ilya guffaws, throwing up his arms in defeat and dropping them both heavily on the table at either side of his plate,
+
+"What? Do you mean when he's saying he doesn't like Shane for—" Rose can't get it out fast enough before Ilya's voice smothers herr own.
+
+"That there were nice men in Montreal and he only needed to look for them. That we are not *compatible,* when we are the most. That I am not good for him, or good influence. Not even his parents say these things; Yuna grocery and clothes shops with me; David builds puzzles with me, teaches me Candian taxes. I would not do those things with person who is bad influence."
+
+He seems more hurt than angry and Rose's heart feels heavy for him.
