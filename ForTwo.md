@@ -1,4 +1,4 @@
-﻿[JULY-AUGUST-SEPTEMBER-OCTOBER]
+[JULY-AUGUST-SEPTEMBER-OCTOBER]
 
 There had always been a shitload of things for Shane Hollander to consider, and it had been evident when she and Shane had begun their failed attempt at courting each other. Even more so as Rose had slowly gotten closer to him. He was a natural at shouldering it all, remembering small details, panicking about the things he couldn't control, steamrolling over everything else in his inevitable perfection conquests. She'd noticed Shane often kept his plate unnecessarily full, but in his own design of life it worked out for him; his greatest performances and failures had been executed under solar systems worth of stress and expectation.
 
@@ -8,7 +8,7 @@ Happy.
 
 "Those are scandalous, girl." Rose gapes, wincing at how shrill her voice sounds in contrast to Shane's warm and cozy appearance.
 
-Shane's grin shrinks into something shy and special, "Four-inch inseam," he stammers, "They are kind of small looking with this, uh—" she nearly gets cavities when the skin beneath his freckles dust pink, "—in Ilya's shirt."
+Shane's grin shrinks into something shy and special, "Four-inch inseam," he stammers, "They are kind of small looking with this, uh—" she nearly gets cavities when the skin beneath his freckles dusts pink, "—in Ilya's shirt."
 
 Shane is lean himself, built very much like a wildcat, lithe and sinewy, agile and sporting muscle noticeable underneath his skin as he moves quietly around a room. By no means is this man *small.* Hell, choosing to pursue him was so terribly easy because of how bulky he was, how small he made her feel. But Ilya? His husband?
 
@@ -56,7 +56,7 @@ His tiny smile reappears before stretching into a proud, toothy grin, "Well that
 
 "Of course it is, now show me to my room!"
 
-Shane giggles and spins around on his slipper-ed and socked feet and launches into a monologue. Rose soaks in his build from behind; he's twice her width and bearing a taper from his ribs and waist to his hips that runway models would certainly do indescribably evil deeds to attain,
+Shane giggles and spins around on his slippered and socked feet and launches into a monologue. Rose soaks in his build from behind; he's twice her width and bearing a taper from his ribs and waist to his hips that runway models would certainly do indescribably evil deeds to attain,
 
 "I wouldn't let Ilya sell his house on the other side of town, but he insisted we go house shopping together. He's had most of my firsts and wanted the 'first-time-buying-a-home-and-moving-in-together' one too." Shane groans as they enter their living room, stopping just before a disgustingly expensive-looking throw rug,
 
@@ -66,7 +66,7 @@ Shane giggles and spins around on his slipper-ed and socked feet and launches in
 
 "It's only a five bedroom, six and a half bath house—well, uh, there's an attached garage with a finished apartment above it so our parents can stay whenever and as long as they want."
 
-Rose tilts her head; she'd been certain both of Ilya Rosanov's parents had passed, considering the charity founded in ode to his mother, and his father having died a season ago.
+Rose tilts her head; she'd been certain both of Ilya Rosanov's parents had passed, considering the charity founded in honor of his mother, and his father having died a season ago.
 
 "Do his parents come out here too?" she asks, carefully, because she's not sure.
 
@@ -86,7 +86,7 @@ Shane glances down, "Some kind of synthetic fur. Ilya wanted a fake bear pelt."
 
 "Not a hot day in fucking hell." Shane quips before stalking off to the kitchen area; here he stops just before his kitchen island and watches Rose curiously poke about.
 
-It's like the living room, spacious and efficient with nothing excessive, a formal kitchen table, a bar attached to the island that could seat six or seven people, the kitchen itself had a setup professional chefs would probably kill for. The Hollanov's kitchen is a warm, terracotta-like orange, with matching Spanish tiling brandished across its floor—upon further inspection most of their kitchen is rather Spanish influenced,
+It's like the living room, spacious and efficient with nothing excessive, a formal kitchen table, a bar attached to the island that could seat six or seven people, the kitchen itself had a setup professional chefs would probably kill for. The Hollanovs' kitchen is a warm, terracotta-like orange, with matching Spanish tiling brandished across its floor—upon further inspection most of their kitchen is rather Spanish influenced,
 
 "Did this Spanish inspiration perhaps come from your honeymoon?" she presses expectantly.
 
@@ -274,7 +274,7 @@ Rose steps forward, dragging her feet forward until they're just before the ligh
 
 "Fine, then Troy Barrett?"
 
-Rose shuffles forward, toes now soaked in the warm recessed lighting. but she can make them out clearly in the kitchen. Shane is rummaging around in the fridge, handing off the ingredients for dinner without so much as glancing at what Ilya might be doing with them when they are removed from his hands,
+Rose shuffles forward, toes now soaked in the warm recessed lighting, but she can make them out clearly in the kitchen. Shane is rummaging around in the fridge, handing off the ingredients for dinner without so much as glancing at what Ilya might be doing with them when they are removed from his hands,
 
 "Ilya, you'd better knock it off."
 
@@ -502,17 +502,15 @@ Oh.
 
 Rose glances at where Svetlana's hand grips hers back.
 
-She's touching something that's *his,* she supposes.
+She's touching another someone that's *his,* she supposes, once more, she cringes.
 
 Shane, with impeccable timing as per usual, returns with a Ziploc bag full of snow that he wraps around Svetlana's leg, "So smart and sensible. Ilya does not deserve you." she muses, eyes sparkling.
 
 Ilya sneers, lifting his chin, "Wrong. Because I now have you both."
 
-Rose can't help smiling, and peers up at Shane. Shane now red as a tomato,
+Rose can't help smiling, and peers up at Shane. Shane now red as a tomato, "You're too nice to me, Svetlana," he murmurs with that smile that causes cavities.
 
-"You're too nice to me, Svetlana." He murmurs with that smile that causes cavities.
-
-Svetlana backs up against the couch, leaning against the pillows there, "You are pretty."
+Svetlana backs up against the couch, leaning against the pillows there, "Only because you are so pretty."
 
 "Ah!" Ilya waggles his finger between the two of them, "None of that. Shane your chicken needs to go in the stove, no?"
 
@@ -524,7 +522,7 @@ Ilya leans forward, "No—no, I am the Captain. What?"
 
 "Don't worry I won't steal him away from you, Ilyushka."
 
-Ilya raises a single brow and leans towards her, still bent down on his knees ahead of the couch, "No you cannot please him the way I can."
+Ilya raises a single brow, still down on his knees ahead of the couch, "No. You cannot please him the way I can."
 
 "*Da,* but I can tease him. He is cute wearing red."
 
@@ -540,11 +538,13 @@ Rose bites her bottom lip to keep herself from grinning, "Shanya?"
 
 "Ah, Shane. Shanya is... an informality. Like Ilya is Lily. A nickname."
 
-So then Svetlana calls Shane, Shanya, and Ilya: "Ilyushka."
+So then Svetlana calls Shane, Shanya, and Ilya: *"Ilyushka."* Rose lets the nickname tumble from her lips, testing it against her tongue, and it's cute, the way it sounds and feels.
 
-Ilya's shoulders tense a bit before he shoots   to his feet, smiling, but the expression fails to reach his eyes, "Do not call me that."
+Ilya's shoulders tense a bit before he shoots to his feet, smiling, but the expression fails to reach his eyes, "Do not call me that."
 
-"Right, sorry." Rose looks away; he might belong to Shane but he's still six foot three and she definitely took Shane away from him at one point. They've never discussed it but she can always tell the hard feelings are there regardless of whether or not he likes her. He's clearly not quick to let go of hard feelings. 
+"Right, sorry." Rose looks away.
+
+They've never discussed it but she can always tell the hard feelings are there regardless of whether or not he likes her. He's clearly not quick to let go of hard feelings. 
 
 But how's she even supposed to know *if* Ilya's carrying a grudge?
 
@@ -562,15 +562,43 @@ Ilya goes without a single word, he only makes eye contact with Svetlana for a f
 
 ---
 
+Svetlana offers no clarification in her comment about the *talk.* She feeds Rose innocent glances and reassuring hums when she presses the Russian, but nothing more. Rose supposes Svetlana's statement may not have even been meant for her; maybe it was more for Ilya, more for how cold he'd become in just seconds, but that bothers Rose because there's nothing more honest than someone showing what they clearly feel. Towards Rose, for Ilya, it was not *friendliness.* Clearly.
+
+"He can be like that, you know," She finally says after sometime, her nose is tilted up to sniff out the aroma of rosemary and lemon, "Ilya."
+
+Rose snorts, "Can you blame him?"
+
+"Can *you?* What happened between Shane and yourself respectfully has nothing to do with you. That is something entirely not your fault and you shouldn't be treated poorly for it."
+
+Rose snaps a pistachio from it's shell, the dry outer layer of the nut flakes around her and onto the blanket which Svetlana reaches across to sweep away it's remnants still tutting at Rose, "It's not Ilya's fault."
+
+"But it probably is." her hazel eyes are boring holes into her, a color so cold retaining so much heat is obscene.
+
+"How are we supposed to know that? For all I can tell Ilya thinks I almost stole Shane away from him."
+
+Svetlana's eyes are wide, "Do you and Shane actually talk? Prying Ilya open is hard enough as is, I'm not so sure about Shane."
+
+"I imagine talking about hat would be a sore subject for Shane and he's not one for rehashing closed chapters."
+
+She places the pistachio shell on the board now nestled between them, and Svetlana groans, "They're hopeless."
+
+"Only when it comes to each other."
+
+Rose feels her brow furrow. She's aware that she was a necessary catalyst in pulling forward the feeling that Shane and Ilya harbored for one another, but she's not sure what business she has in speaking to either one of them about what came of that during the time she and Shane "dated". She can't imagine it going over smoothly with Ilya, and she hates making Shane cry. And goodness, is Shane easy to bring to tears. He's so soft and honest with her, she couldn't possibly ask him:
+
+"So how does Ilya feel about you and I dating? About us having sex, and going on dates, and holding hands, and all these other things you guys were finally just able to experience nearly a the cost of your careers and mental health—*tee hee!*"
+
+---
+
 Ilya has been openly fussed at by Shane for going onto their patio to smoke a cigarette by the time Svetlana and Rose join them; Shane's set the table, perfectly, and hands each on of them a small salad of microgreens and shaved cabbage with a light dressing. It's refreshing, maybe a bit too much considering the warring winter weather just outside.
 
-Soup might've felt more welcoming, what with the frost Ilya eminates himself.
+Soup might've felt more welcoming, what with the frost Ilya emanates himself.
 
-He's a lot like the storm outside. Cold, unwelcoming and unrelenting, from the outside of course but she's seen the otherside of him; the side that's warm like the teracotta tiles that encapsulate his kitchen. Warm like his second cup of coffee tucked against his palm as he eyeballs the salad his husband hands him with a shy smile. He doesn't spare Rose a glance, but Svetlana is seated directly ahead of him, and Shane infront of Rose, the only way that these arrangements would really make sense. Svetlana's eyes are heavy on him, narrowed and critical, and Ilya avoids it occasionally—his jaw goes taught after every bite of his salad, every swallow of coffee,
+He's a lot like the storm outside. Cold, unwelcoming and unrelenting, from the outside of course but she's seen the other side of him; the side that's warm like the terracotta tiles that encapsulate his kitchen. Warm like his second cup of coffee tucked against his palm as he eyeballs the salad his husband hands him with a shy smile. He doesn't spare Rose a glance, but Svetlana is seated directly ahead of him, and Shane in front of Rose, the only way that these arrangements would really make sense. Svetlana's eyes are heavy on him, narrowed and critical, and Ilya avoids it occasionally—his jaw goes taut after every bite of his salad, every swallow of coffee,
 
 "Shane," he drawls after he finishes the salad, "will you bring me some water?"
 
-And Svetlana is right on the Russian's ass when Shane eagerly departs to fufill the request:
+And Svetlana is right on the Russian's ass when Shane eagerly departs to fulfill the request:
 
 "Talk." she growls, *"Now."*
 
@@ -606,25 +634,25 @@ Shane nods, "You have to let me go first."
 
 Ilya does, slowly, "Mmm...no, probably later."
 
-That earns him an aggresive pat on the head and Shane goes red to his ears.
+That earns him an aggressive pat on the head and Shane goes red to his ears.
 
-"Oh, I'll take that one Shanya." Svetlana cooes reaching across the table for the glass bottled water, "Hurry, I want to try your chicken."
+"Oh, I'll take that one Shanya." Svetlana coos, reaching across the table for the glass bottled water, "Hurry, I want to try your chicken."
 
 "Okay, okay, just need one second!" Shane grins before speeding off after passing it to her.
 
 "No running!" Ilya groans, his voice is cavernous and she's sure it vibrates against Svetlana's ears the same way it does her.
 
-There's about thirty seconds of silence before Svetlana pushes her salad bowl to the edge of her placemat in preperation for their main entree, then she takes a small gulp of the water Shane's given her,
+There's about thirty seconds of silence before Svetlana pushes her salad bowl to the edge of her placemat in preparation for their main entree, then she takes a small gulp of the water Shane's given her,
 
-"Ilya is in the galiant process of self improvement." She states with little to no emotion, Ilya watches her with a look of mild interest,
+"Ilya is in the gallant process of self improvement." She states with little to no emotion, Ilya watches her with a look of mild interest,
 
 "Yes." he slurs, "Self improvement."
 
-Svetlana meets his blueish irses with her green ones, "For Shane."
+Svetlana meets his blueish irises with her green ones, "For Shane."
 
 Ilya nods, his eyes drop for a moment, then find her again, "For Shane, and the future I want."
 
-Rose wants to tuck her puzzled expression behind her teeth with the healthy micorgreens her molars are pulverizing, but it's near impossible,
+Rose wants to tuck her puzzled expression behind her teeth with the healthy microgreens her molars are pulverizing, but it's near impossible,
 
 "That's great Ilya." she offers in earnest.
 
@@ -636,7 +664,7 @@ Ilya looks like he might suddenly jump across the dinner table and strangle Svet
 
 She finds herself intimidated even more than he usually makes her and she fucking hates it.
 
-Svetlana is unpeturbed, and sips her water again, "Why not? You taught me how to be."
+Svetlana is unperturbed, and sips her water again, "Why not? You taught me how to be."
 
 "Oh, you are just so funny tonight, aren't you Svetlana." Ilya croaks.
 
@@ -660,8 +688,8 @@ Rose sticks to the topic, pulling her hair back from over her shoulders, she lea
 
 "You have been sitting right there when he does this, Rose Landry." Ilya guffaws, throwing up his arms in defeat and dropping them both heavily on the table at either side of his plate,
 
-"What? Do you mean when he's saying he doesn't like Shane for—" Rose can't get it out fast enough before Ilya's voice smothers herr own.
+"What? Do you mean when he's saying he doesn't like Shane for—" Rose can't get it out fast enough before Ilya's voice smothers her own.
 
-"That there were nice men in Montreal and he only needed to look for them. That we are not *compatible,* when we are the most. That I am not good for him, or good influence. Not even his parents say these things; Yuna grocery and clothes shops with me; David builds puzzles with me, teaches me Candian taxes. I would not do those things with person who is bad influence."
+"That there were nice men in Montreal and he only needed to look for them. That we are not *compatible,* when we are the most. That I am not good for him, or good influence. Not even his parents say these things; Yuna shops for groceries and clothes with me; David builds puzzles with me, teaches me Canadian taxes. I would not do those things with person who is bad influence."
 
 He seems more hurt than angry and Rose's heart feels heavy for him.

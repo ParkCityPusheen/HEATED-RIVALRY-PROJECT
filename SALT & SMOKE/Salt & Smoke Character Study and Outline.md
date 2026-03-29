@@ -1,6 +1,8 @@
 # Salt & Smoke
 
-*Heated Rivalry* alternate universe. Canon names and pairing; new setting and pressures. Use this document for premise, characters, and chapter planning.
+*Heated Rivalry* alternate universe. Canon names and pairing; new setting and pressures. Use this document for premise, characters, and lives; opening chapter beat sheet lives at the end.
+
+Collapsible sections below use `<details>` / `<summary>` (HTML). They fold in Cursor, VS Code Markdown preview, and GitHub so the file stays short at a glance.
 
 ---
 
@@ -62,28 +64,6 @@ That setup gives you **constant proximity**, **power imbalance**, and **high-pre
 
 ---
 
-## Relationship arc (phases)
-
-**Phase 1 — Friction**  
-Mutual misjudgment; tension and irritation. Shane sees Ilya as difficult. Ilya sees Shane as detached and controlling.
-
-**Phase 2 — Observation**  
-Shane notices Ilya’s competence, inconsistencies (numb vs. sharp), smoking patterns, subtle physical strain.
-
-**Phase 3 — Slow realization**  
-Shane recognizes his own communication failures and that Ilya’s methods are often more practical. Fixation grows: not only guilt, but curiosity.
-
-**Phase 4 — Uneasy adjustment**  
-Shane tries to “optimize” interactions. Ilya resists and distrusts motives. Tension becomes quieter and more personal.
-
-**Phase 5 — Recognition**  
-They begin to understand: Ilya sees Shane as trapped in a different system, not inherently superior. Shane sees Ilya as surviving under constant pressure, not careless.
-
-**Phase 6 — Emotional shift**  
-Less about open conflict; more about mutual awareness, unspoken understanding, and fragile connection.
-
----
-
 ## Recurring motifs
 
 1. **Control vs. survival:** Shane imposes structure; Ilya navigates reality.
@@ -91,17 +71,31 @@ Less about open conflict; more about mutual awareness, unspoken understanding, a
 3. **Suppression:** Ilya → cigarettes, alcohol; Shane → masking, control.
 4. **Food as metaphor:** Ilya as raw material, origin, labor; Shane as refinement, presentation, expectation.
 
----
-
-## Craft note (physical and emotional erosion)
+<details>
+<summary><strong>Craft note — physical and emotional erosion</strong></summary>
 
 The story leans on **gradual physical decline (smoking)** and **emotional numbing (alcohol)** for Ilya rather than a single dramatic injury. That keeps the arc realistic, character-driven, and quietly devastating. It also **mirrors Shane**: neither is breaking all at once; both wear down in different ways.
 
+</details>
+
 ---
 
-# Character sheet
+## Early dynamic (before anything resolves)
 
-## Ilya Rozanov
+Mutual misjudgment; tension and irritation. Shane sees Ilya as difficult, resistant, possibly careless. Ilya sees Shane as detached, controlling, theory over floor. Neither has the full picture yet.
+
+---
+
+# Characters
+
+**Ilya (visible):** Red meat specialist labor; cash, undocumented, motel; reads systems; wound “nothing ahead of me”; buried pride, demonstrates correctness when pushed.
+
+**Shane (visible):** Owner / high authority, seasonal U.S.; masking, standards as stability; wound “everything ahead is wrong”; social performance vs. Ilya’s refusal to polish.
+
+**Together:** Each thinks the other has what they lack; structural power stays with Shane; public challenge to his critique is a crack, not a coup.
+
+<details>
+<summary><strong>Ilya Rozanov — full sheet</strong></summary>
 
 **Role in the story**  
 He is **specialist labor** at the top of the industry, still firmly **inside** the hierarchy: he makes the red meat program work in the real world. **Farm choices and vendor relationships are ultimately at the whim of one of Shane’s general managers** (assignments, approvals, who gets blamed if a source goes wrong). Ilya executes, transports, preps, and optimizes on the ground; he is not ownership and not chef de cuisine.
@@ -157,9 +151,10 @@ Detached, controlling, theory over floor. The face of a world that can discard I
 **Draft guardrail**  
 Structural power still lives with ownership. Ilya can win an argument and still lose a job.
 
----
+</details>
 
-## Shane Hollander
+<details>
+<summary><strong>Shane Hollander — full sheet</strong></summary>
 
 **Role in the story**  
 Owner / high authority temporarily overseeing seasonal U.S. operations. Controls the system Ilya survives inside.
@@ -192,128 +187,44 @@ Difficult, resistant, possibly careless or defiant. A variable in a system he is
 
 - Corrections that can be technically valid but impractical on the line.
 - Dysregulation masked as rigidity: nitpicking spikes when personal stress is high.
-- Rare moments of unguarded observation once curiosity and guilt compound.
+- Unguarded observation can surface when fatigue or overload lowers the mask.
 
 **Draft guardrail**  
 Winning a procedural argument does not remove his accountability for how power lands on someone with Ilya’s vulnerabilities.
 
----
-
-## Together (draft reminders)
-
-- **Shared mistake (long arc):** Each believes the other holds what they lack, while both are quietly collapsing under different pressures.
-- **Power:** Shane retains structural authority. A public challenge to his critique is a crack, not a coup.
+</details>
 
 ---
 
-# Chapter outline
+# Opening chapter (beat sheet)
 
 Working series title: **Salt & Smoke** (adjust if you rename the fic).
 
----
-
-## Chapter 1 — The crack (core scene: first interaction)
+<details>
+<summary><strong>Chapter 1 — The crack</strong> (first interaction; inciting public challenge without reversing power)</summary>
 
 **Purpose:** Establish setting, hierarchy, sensory world of the kitchen, and your chosen POV or focal lens. Land the inciting disruption: a public challenge to Shane’s authority in his domain, without reversing power.
 
+**Core beat (first interaction)**
+
+- **Situation:** Shane critiques meat handling and sterility in front of staff while Ilya is actively working.
+- **Underlying reality:** Shane is dysregulated (personal stress, need for control) and channels that into overly rigid, nitpicking critique. His corrections can be technically valid in theory but inefficient or impractical in execution.
+- **Ilya going in:** Possible nicotine gap (more on edge); physically strained (tighter breathing, rougher voice); already mentally exhausted.
+- **Restraint phase:** Minimal responses; keeps working; avoids escalation.
+- **Breaking point:** Shane dismisses Ilya’s method entirely and implies incompetence or disposability.
+- **Ilya’s response:** Calm, precise, grounded in real workflow logic. He **demonstrates** the inefficiency in Shane’s approach. He does not insult. **He is correct.**
+- **Outcome:** Staff notices the shift. Shane is challenged in his own domain. Ilya briefly shows his sharp, true self, then withdraws again.
+
 **Suggested structure (flexible)**
 
-1. **Cold open on the line**  
-   Winter service pressure. Establish Ilya’s physical reality: strain, breath, voice, nicotine gap if you want withdrawal edge on this day.
-
-2. **Shane enters the space**  
-   Not as villain speech, but as weather: staff straighten, language shifts, margins shrink. Hint personal dysregulation (sleeplessness, rumination, need for control) without explaining it yet.
-
-3. **The critique**  
-   Meat handling / sterility in front of crew. Shane’s points: defensible on paper. Execution: rigid, inefficient, or blind to real flow.
-
-4. **Ilya’s restraint phase**  
-   Minimal answers. Keeps working. The room watches both of them.
-
-5. **The trigger**  
-   Shane dismisses Ilya’s method, implies incompetence or disposability (wording can be subtle; implication clear to the room).
-
-6. **The break**  
-   Ilya: calm, precise, grounded in workflow logic. He demonstrates why Shane’s approach fails in this kitchen, this volume, this timing. No insult; he is correct.
-
-7. **Aftermath**  
-   Staff registers the shift. Shane’s control narrative fractures in public. Ilya withdraws again (numb layer returns). Close with the power reminder: Shane can still end him; Ilya knows it.
+1. **Cold open on the line** — Winter service pressure. Establish Ilya’s physical reality: strain, breath, voice, nicotine gap if you want withdrawal edge on this day.
+2. **Shane enters the space** — Not as villain speech, but as weather: staff straighten, language shifts, margins shrink. Hint personal dysregulation (sleeplessness, rumination, need for control) without explaining it yet.
+3. **The critique** — Meat handling / sterility in front of crew. Shane’s points: defensible on paper. Execution: rigid, inefficient, or blind to real flow.
+4. **Ilya’s restraint phase** — Minimal answers. Keeps working. The room watches both of them.
+5. **The trigger** — Shane dismisses Ilya’s method, implies incompetence or disposability (wording can be subtle; implication clear to the room).
+6. **The break** — Ilya: calm, precise, grounded in workflow logic. He demonstrates why Shane’s approach fails in this kitchen, this volume, this timing. No insult; he is correct.
+7. **Aftermath** — Staff registers the shift. Shane’s control narrative fractures in public. Ilya withdraws again (numb layer returns). Close with the power reminder: Shane can still end him; Ilya knows it.
 
 **Motifs to touch:** control vs. survival; visibility (Ilya seen for a moment); food as metaphor (raw process vs. imposed standard).
 
----
-
-## Chapter 2 — Friction in the walls
-
-**Purpose:** Phase 1 continuation: mutual misjudgment, irritation, lingering humiliation or defensiveness on Shane’s side; distrust on Ilya’s.
-
-- Short-term consequences of Ch1: rumors, side-eyes, changed assignments, or “nothing official” silence.
-- Shane doubles down or avoids; Ilya expects retaliation.
-- Optional: smaller clashes that echo the same pattern (valid theory vs. floor truth).
-
----
-
-## Chapter 3 — Observation begins
-
-**Purpose:** Phase 2. Shane starts watching instead of only commanding.
-
-- Notices competence, inconsistencies (numb vs. sharp), smoking patterns, physical strain.
-- Internal conflict: resentment vs. unwanted respect vs. guilt.
-- Ilya may read attention as threat.
-
----
-
-## Chapter 4 — Slow realization
-
-**Purpose:** Phase 3. Shane admits (privately) communication failure and the practical strength of some of Ilya’s methods; fixation grows: not only guilt, curiosity.
-
-- Possible beat: Shane tries a correction that incorporates Ilya’s logic without crediting him (tension), or asks a real question and is stunned by the answer.
-- Ilya still assumes motive is control.
-
----
-
-## Chapter 5 — Uneasy adjustment
-
-**Purpose:** Phase 4. Shane attempts to “optimize” interactions; Ilya resists.
-
-- Micro-changes in scheduling, standards, or one-on-one tone.
-- Distrust: Ilya interprets help as surveillance or setup.
-- Tension turns quieter and more personal; fewer explosions, more loaded silences.
-
----
-
-## Chapter 6 — Recognition (parallel)
-
-**Purpose:** Phase 5. Both reframe the other.
-
-- Ilya: Shane as trapped by a different system, not inherently superior.
-- Shane: Ilya as surviving constant pressure, not careless.
-- Still no guarantee of safety or confession; understanding can coexist with fear.
-
----
-
-## Chapter 7 — Emotional shift
-
-**Purpose:** Phase 6 opening movement. Less about winning arguments; more about mutual awareness and fragile connection.
-
-- Choose a contained beat (after service, shared task, weather, small mercy) that cannot fix structural inequality but changes how they see each other.
-- Leave room for later chapters if you want romance or deeper intimacy to build slowly.
-
----
-
-## Chapters 8+ (placeholder)
-
-Reserve for: escalation of Ilya’s health or immigration risk if you introduce external plot; Shane’s family expectations surfacing; consensual relationship negotiation; or a season-finale that mirrors the opening (control vs. survival) with different emotional stakes.
-
-Adjust chapter count freely; merge or split beats as the draft demands.
-
----
-
-## Arc map (phases vs. chapters)
-
-- **Phase 1 — Friction:** Chapters 1–2  
-- **Phase 2 — Observation:** Chapter 3  
-- **Phase 3 — Slow realization:** Chapter 4  
-- **Phase 4 — Uneasy adjustment:** Chapter 5  
-- **Phase 5 — Recognition:** Chapter 6  
-- **Phase 6 — Emotional shift:** Chapter 7 and beyond  
+</details>
