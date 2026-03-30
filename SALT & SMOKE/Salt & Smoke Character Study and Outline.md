@@ -88,9 +88,9 @@ Mutual misjudgment; tension and irritation. Shane sees Ilya as difficult, resist
 
 # Characters
 
-**Ilya (visible):** Red meat specialist labor; cash, undocumented, motel; reads systems; wound “nothing ahead of me”; buried pride, demonstrates correctness when pushed.
+**Ilya (visible):** Red meat specialist labor; cash, undocumented, motel; reads systems; wound “nothing ahead of me”; buried pride, demonstrates correctness when pushed. **English:** high-information, low-cushion; not slow on the uptake, but light on guest-facing “packaging,” so tone can misread as attitude.
 
-**Shane (visible):** Owner / high authority, seasonal U.S.; masking, standards as stability; wound “everything ahead is wrong”; social performance vs. Ilya’s refusal to polish.
+**Shane (visible):** Owner / high authority, seasonal U.S.; masking, standards as stability; wound “everything ahead is wrong”; reads tone as politics and verbal choreography; can mistake Ilya’s missing performance layer for refusal or disrespect.
 
 **Together:** Each thinks the other has what they lack; structural power stays with Shane; public challenge to his critique is a crack, not a coup.
 
@@ -136,6 +136,17 @@ His **home base is Ilion, NY**; this posting is roughly **fourteen hours** away 
 **Core skill (story function)**  
 Reads systems the way other people read a room. Optimizes workflow and logic even when no one credits him for it.
 
+**Comprehension vs. English output (not slow on the uptake)**  
+There is a gap between what he holds in his head and what he can put into English in real time. Inventory, risk, social math, other people’s tells, and similar processing can run deep while **output stays short, plain, and unsoftened.**
+
+“Rough and broken” here is **not** mainly random grammar noise. It is **missing the usual packaging:** hedges, apologies, face-saving jokes, upward deference, the little phrases that tell a boss *I am cooperating* even while you correct them. Without those reflexes in English, the **same content** can land as flat order, blunt fact, or bare challenge, especially to someone who **reads tone as politics** (a Shane, a guest-facing manager, anyone who expects verbal choreography).
+
+**Abrasive to the wrong person** fits that: the wrong reader hears attitude or disrespect when what is actually there is **no performance layer**, or **directness without buffer**, not necessarily hostility.
+
+**Verbal posturing** is a skill in a language and a workplace culture. He does not know how to do that packaging in English the way the room expects. He can sound as if he is **refusing to play the game** when he is **not equipped to play it in English** on their terms.
+
+**Draft terms for prose:** Show comprehension in **narration** or in **what he does** (timing, precision, reading the room in action). Keep **dialogue high-information, low-cushion.** Then abrasiveness reads as **structural** (missing cushion, missing choreography), not as him “being more of a jerk” than he is.
+
 **Core wound (thematic line)**  
 “There is nothing ahead of me.” Scarcity of future, legitimacy, and safety.
 
@@ -147,6 +158,7 @@ Detached, controlling, theory over floor. The face of a world that can discard I
 - Minimal speech when threatened; precision when pushed past tolerance.
 - Physical tells when nicotine-deprived or strained: tighter breathing, rougher voice, shorter fuse under the surface.
 - When the real Ilya surfaces, he does not perform anger; he demonstrates correctness.
+- Let the **smart stay visible in action and interiority**; let **speech stay plain** so misreads stay plausible in-scene.
 
 **Draft guardrail**  
 Structural power still lives with ownership. Ilya can win an argument and still lose a job.
