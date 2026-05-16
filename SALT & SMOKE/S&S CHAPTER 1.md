@@ -228,14 +228,5 @@ It's impressive the gall of this man, forcing a meeting just three days before w
 
 Pike said he could overstock the proteins so Ilya could make himself scare an additional day out of the week, that they could keep Marlowe there without Ilya to make it believable. Ilya had planned on staying home with Mama, maybe read to her, re-braid her hair, a nice hot sponge-bath because the nurses were nice but likely not as nice as he is for her. No one could ever be.
 
-But Ilya is here, itching for a cigarette, on his fourth complimentary vodka, neat, and feeling nice against his will and not with Mama.
-
-And, for all this trouble, Shane Hollander will *not* let his eyes find Ilya's, so Ilya picks Hollander apart with his own.
-
-He notes dark lashes that swoop downwards, following the shaped of gently sloped eyes before flicking outwards, a strong torso sickly emphasized by the tuck of his shirt, the fanning of his hips into thick quads, glutes, thighs. Ilya's finger thrum against his face, no doubt Yuna Hollander effortlessly seduced Father Hollander with a son who looks so much like her.
-
-When he speaks, his voice raises to the volume it needs to maintain proper authorities, his face holds a bland look, his eyes are prying but not eager. Not like they were when he was nearly chest to chest with Ilya in the protein room. Ilya grunts over the rim of his chilled glass; maybe those suits and evening gowns were right. Hollander was putting on quite the show for him. Small waist, thick ass, and those doe-eyed glances across the open floor.
-
-It would be bad to come onto your boss's boss. Naturally.
-
-Ilya sighs and sinks farther into his seat, and his legs spread notably wider, thighs screaming against soft material of his own slacks.
+But Ilya is here, itching for a cigarette, on his fourth complimentary vodka, neat, and feeling nice against his will and not with Mama.And, for all this trouble, Shane Hollander will *not* let his eyes find Ilya's, so Ilya picks Hollander apart with his own.He notes dark lashes that swoop downwards, following the shaped of gently sloped eyes before flicking outwards, a strong torso sickly emphasized by the tuck of his shirt, the fanning of his hips into thick quads, glutes, thighs. Ilya's finger thrum against his face, no doubt Yuna Hollander effortlessly seduced Father Hollander with a son who looks so much like her.When he speaks, his voice raises to the volume it needs to maintain proper authorities, his face holds a bland look, his eyes are prying but not eager. Not like they were when he was nearly chest to chest with Ilya in the protein room. Ilya grunts over the rim of his chilled glass; maybe those suits and evening gowns were right. Hollander was putting on quite the show for him. Small waist, thick ass, and those doe-eyed glances across the open floor.
+It would be bad to come onto your boss's boss. Naturally.Ilya sighs and sinks farther into his seat, and his legs spread notably wider, thighs screaming against soft material of his own slacks.

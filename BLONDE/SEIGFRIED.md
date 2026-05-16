@@ -537,22 +537,22 @@ Ilya scoffs; dually noted. Dana is not just a caretaker, but a walking CCTV for 
 **SENT:** *I guess.*
 ***Read at 2229***
 
-Ilya peels off the blockers from his neck and shoulders, dropping them into the trashcan in his bathroom before taking a scalding shower.
+Ilya peels off the patches from his neck and shoulders, dropping them into the trashcan in his bathroom before taking a scalding shower.
 
-Dana pressures him into what sounds like impromptu therapy sessions as "pheromone regulation" with unrelenting pestering, he supposes it helped that he was trapped on the balcony. They'll start Sunday, thank fucking God, and Mama will participate, but her coaching begins tomorrow morning. They've been working on mobility in her hand and wrist for the most part, and Dana informs him that she'll do the work of mentioning pheromones and the such to Mama.
+Dana pressures him into what sounds like impromptu therapy sessions as "pheromone regulation" with unrelenting pestering, he supposes it helped that he was trapped on the balcony that he folds so quickly. They'll start Sunday and Mama will participate, but her own personal coaching with Dana begins tomorrow morning as a preemptive measure. They've already been working on mobility in her hand and wrist, and Dana informs him that she'll do the work of mentioning pheromones and the such to Mama.
 
-She'll be better for it anyway, Ilya doesn't know shit besides what he's heard from Papa and his brother previously, which amounts to a lot of fucking nothing because he wasn't part of the asshole-sniffing congregation until just a few years ago. How long ruts last, how to tell they're happening, understanding all these annoying fucking smells diffused in the air around him, mates and fucking; none of that has mattered prior and he won't let them now. He'll die a fucking virgin and the Mother Mary will greet him with open arms when he arrives at her Gates for it.
+She'll be better for it anyway, Ilya doesn't know shit besides what he's heard from Papa and his brother previously, which amounts to a lot of fucking nothing because he wasn't part of the asshole-sniffing congregation until just a few years ago. How long ruts last, how to tell they're happening, understanding all these annoying fucking smells diffused in the air around him, mates and sex; none of that has mattered prior and he won't let them now. He'll die a fucking virgin and the Mother Mary will greet him with open arms when he arrives at her Gates for it.
 
 Problems don't exist when you don't acknowledge them after all.
-
-Frank Ocean sings him to sleep.
 
 ---
 [CHICAGOILLINOIS|28FEB2016]
 
 Ilya makes his first two friends on the "last day of black history month". And, yes, this is important, according to Mei, introduced to him by Svetlana (affectionately called Mei Mei and still encouraging him to do so), as they walk to physics together—a class Ilya has taken so many times he hardly pays attention aside from: "This *will* be on your next test".
 
-Like Ilya, Mei is in a math heavy major, while Svetlana is more whimsy, majoring in contemporary art and *minoring* in applied mathematics which is the Devil's work. Svetlana is mixed, black like Nurse Dana, with a father who is famous in Russia. She's beautiful with American caramel-colored skin that would make his mouth water if the downers didn't give him cottonmouth, and hazel eyes like his own. She speaks miraculous Russian and it leaves him gushing over her to hear his mother tongue. Svetlana smells like English pears and sweet peas, specifically so because she tells him that's what her scent is profiled as; she was *labeled* at a lab.
+Like Ilya, Mei is in a math heavy major, while Svetlana operates more on whimsy, majoring in contemporary art and *minoring* in applied mathematics—which is the Devil's work.
+
+Svetlana is mixed, borne to a black-american mother and a Russian father, with American caramel-colored skin that would make his mouth water if the downers didn't give him cottonmouth so badly, and hazel eyes like his own. She speaks miraculous Russian and it leaves him gushing over her to hear his mother tongue. Svetlana smells like English pears and sweet peas, specifically so because she tells him that's what her scent is profiled as; she was *labeled* at a lab.
 
 They're making the pilgrimage to the dining hall across campus when Svetlana mentions it,
 
@@ -594,7 +594,7 @@ When Ilya arrives home there's a large television in their living room adjacent 
 
 Ilya rolls his eyes; YouTube, Reddit, and Instagram are all literally a thing.
 
-He drops his bag on the couch and grabs a coke from the fridge, drinks it, and treks to the third floor where Mama is sitting upright against an army of goose feather-filled pillows, watching Dana with bright eyes. The nurse is complaining about pigeons, how they could fly but instead they walk just within reach and in the filthiest places.
+He drops his bag on the couch and grabs a coke from the fridge, drinks it, and treks to the third floor where Mama is sitting upright against an army of goose feather-filled pillows, watching Dana with bright eyes. The nurse is complaining about pigeons, how they could fly, but instead they walk just within reach and in the filthiest places.
 
 "I don't understand why they want to even be near us. They could fly a state over to Michigan, or something, and make a nest in the forests by a lake."
 

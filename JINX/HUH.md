@@ -137,9 +137,9 @@ Dan's mouth opens just a bit, he's *glad?*
 **Jae:** *probably not im just wondering*
 ***Read at 2117***
 
-Dan manages a giggle; he isn't sure what fuck all is going on but it seems fine.
+Dan manages a giggle; he isn't sure what is going on but it seems fine.
 
-**SENT:** *? Are you okay?*
+**SENT:** *Are you okay?*
 ***Read at 2118***
 
 **Jae:** *yeah im fine*
@@ -154,9 +154,9 @@ Dan manages a giggle; he isn't sure what fuck all is going on but it seems fine.
 **SENT:** *Could you come here? Just at the entryway of the room?*
 ***Read at 2120***
 
-And for all gold and glory, Joo Jaekyung pads barefoot, now in the comfiest looking sweater and sweatpants ensemble Dan has ever seen (complete with the glasses he'd only ever seen one other time), to his room. He doesn't say a word, just stands there in the doorway like some scary dog, scowling and trying to force himself not to.
+And for all gold and glory, Joo Jaekyung pads barefoot, now in the comfiest looking sweater and sweatpants ensemble Dan has ever seen (complete with the glasses he'd only ever seen one other time), to his room. He doesn't say a word, just stands there in the doorway like some big, scary dog, scowling while trying to force himself not to.
 
-Dan looks at him, then down to his phone, because he knows trifling with this man's time is a surefire way to gets a rise out of him. Then:
+Dan looks at him, then down to his phone, because he knows trifling with this man's time is a surefire way to get a rise out of him. Then:
 
 **SENT:** *Well, you look fine.*
 ***Read at 2121***
@@ -205,5 +205,5 @@ He sits there, head tracing the crown molding, then picks the phone back up.
 
 And they sleep.
 
-And Kim Dan is prepared to see the gates of heaven because is certainly far to weird to be real.
+And Kim Dan is prepared to see the gates of heaven because is certainly far too weird to be real.
 
