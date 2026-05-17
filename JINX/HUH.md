@@ -1,209 +1,42 @@
-Kim Dan remembers waking up slowly, relatively pain-free, which by all means is a good thing, but the sight of his employer nearly triple his size caged at the corner of his hospital room is eerie. Eerie at first, almost spooky, but then immediately concerning. Their eyes lock and Mr. Joo's back straightens up, snaps nearly as he flinches to attention, clearing his throat,
+The days snail by so peacefully after Dan's discharge that he gets whiplash.
 
-"You're awake. Good," He saunters over to the bed so close that Dan can clearly make out the dark shadow beneath his eyes, dark as if they were in the final healing stages of a black-eye, and presses the *assistance requested* button at the middle of his cot's railing, "the nurses will talk to you about your outpatient program."
+His first day away, he attempts once to return the money Mr. Joo has deposited into his bank account, calculates the decades it would take to return the money needed to cover Dan's debt that he'd mentioned handling previously. Naturally it's unsuccessful and he ends up having to speak with the bank due to the rubber-banding of such a large number of funds. Dan concedes as usual and continues on with his day.
 
-Dan opens his mouth to say something and the first thing he can think of is naturally:
+It's still quiet in the country side, he goes out to the open market on the boardwalk, eyes closed and listening to the waves crashing along the shore. He's not greedy, but he allows himself basic human decencies; he purchases fresh mackerel and tinned fish, smoked and packed in a spicy curry locally. Dan eats quickly, cleans just as so, takes a long and hot shower and falls asleep as soon as he lies his head on his pillow.
 
-"Did you... win... your match?"
+He dreams of broad shoulders and an even wider back and tells himself he doesn't know who it is when he finally wakes up.
 
-Talking is hard.
+The second day he realizes his payment for the services he provided Mr. Joo are *triple* what they should be so he sucks in a sharp breath, ready to play transfer-funds-tag with the professional athlete once more. This time, however, Dan finds out that Mr. Joo has deactivated his account with said bank so it's impossible to even attempt a return.
 
-He blinks, eyes catching the window behind Mr. Joo, then back to his face; still incredibly handsome no matter how tortured he might look,
+The third day it pours, all day, and while watching his grandmother sleep he remembers he should be paying for her stay at the hospice facility and shuffles towards the nurses' desk to do so. Only, one Joo Jaekyung has already assumed his grandmother's payments:
 
-"If you don't like anything, let them know."
+"I wish I could change the primary payment method, but your grandmother explicitly requested that it not be changed. We're obliged to respect her wishes until she waives her rights."
 
-He straightens up even more, if possible then adds, quietly:
+Of course she did.
 
-"You told me to win so I did."
+Part of him is relieved, infinitely so: he's debt free, his grandmother is taken care of for the remainder of her life, and he's got more than a nest-egg, more than the average middle-class family's expected combined savings even. He could buy a car, a small house, move across the country, pinch the money between his fingers and hunker down in some passable apartment and never work another day in his life but the relief never sinks into his consciousness the way he wishes it would...
 
-And that's that.
+Instead it only invites *fear.*
 
-They don't see each other again until the nurses are wheeling him out in a wheelchair to his... *mid-sized SUV.* Not his McLaren. It's still somewhat obscene and luxurious. It's a dark, candied red and sporting spoked rims that are a gunmetal grey.
+Fear that now he knows the singular entity that knows him and Kim Dan knows him well. Mr. Joo could materialize at any given moment; drift into the hospital emergency lane snug in the massaged leather seats of his white McClaren,
 
-The nurses work to help him into the passenger side and Mr. Joo watches, motionless, from the driver's side. He has not a snarky remark nor heavy sigh to offer any of them as they maneuver Dan into the vehicle.
+*"Don't worry about compounding interest and fine print Kim Dan,"* he would say, *"Just consider it indentured servitude."*
 
-Honestly, everything is a blur until they're back at his condo.
+The thought is horrifying.
 
-Dan watches as Mr. Joo make his way to the passenger's side after unfolding the wheelchair from the trunk, then he places himself between it and Dan,
+It nags in his mouth and makes Dan bite the skin away at his lips, dries the skin around his cuticles, and makes him disassociate at his Grandmother's hospital door everyday he visits her. And today, he could laugh, she mentions the man,
 
-"Arms around my neck." He grunts while dodging eye contact.
+"When will Jaekyung visit? Oh, Dan I do miss him so. Do you know he drove out here to visit me everyday while you were working for his friend? He talks so much once he manages to open up, its so endearing."
 
-Dan does what he's told, and he's lifted effortlessly from the car to the wheelchair, pushing into the elevator, down the spacious and private entry-way foyer, then into the condo. The world spins at it's center three times the speed it should and Dan finds his world has narrowed down to two onyx eyes that dart across his own face once, then twice,
+Dan smiles weakly at her, he's unimaginably gleeful that the springtime pink of her face has returned but at what cost? He scratches at his wrists before answering, reminding himself that *no,* he was not comatose in Seoul hospital following an knife attack, *yes* he was abroad working for one of Mr. Joo's associates,
 
-"Whatever you need, you can text me. I won't bother you. I won the match. I'm taking a leave of absence from the ring for now. Stay if you want, leave if you want."
+"I'm not sure, Grandma," Dan's eyes shake a moment, then, calmly he adds, "I could ask him to if you'd like?"
 
-Dan can't help ducking from his gaze as his statement had dragged along. It stings like his side, still healing internally, somewhere and impulsively, an apology escapes his lips,
+Could he even though? In his pocket a phone purchased by Mr. Joo is nestled neatly against a butter-soft leather wallet, *also* purchased by the younger man, maybe Mr. Joo might've punched in his number. Maybe, so that when it came time to collect what he'd lent Dan would surely recognize his name at the top of the screen.
 
-"I'm sorry for all of this trouble I've caused."
+He shakes his head and recenters his Grandmother, successfully changing the subject so he can lament the phone later. And inevitably, night befalls the town swiftly and Dan lies across his bed on his back unlocking the phone and opening up the contacts app. Surely enough he sees him there, *Jae.* 
 
-Mr. Joo flinches, hard, then he says softly while pointing to himself, "Myself," then back to Kim Dan, "and you..."
+Not Joo Jaekyung, or Jaekyung, just *Jae.*
 
-He hesitates, but not for too long:
-
-"It's not okay."
-
-Then he fidgets.
-
-"I said you can leave or stay but I would like you to stay. I wouldn't mind it. If that's okay. If that's what you want. But I'm just telling you in case you wanted to know, which you probably don't. I'm just telling you so you don't have to ask or wonder, because I know I'm hard to talk to. And I'm demanding anything, or requesting it, I'd help you move and make sure you have a job wherever you want to go. But just——"
-
-Joo Jaekyung *flushes* so red it crawls up the back of his neck.
-
-"——I want you with me. So I can keep you safe and stuff. If you want that. And your room is the master bedroom now, you can't roll up the stairs, I'm fine where I'm at so don't ask me if I want to switch back. My nutritionist is preparing meals for us. If you need help with anything just text me, you don't have to talk to me. If you don't want to, you don't have to. You don't even need to text me if you didn't want to either, I can have coach come by and help you, or Potato or whoever if you don't want to see me. I can go stay at a hotel or something. And I've been seeing your Grandmother a few times a week, everyday at first, but she gets upset about it. I'm sorry if that——"
-
-Mr. Joo shuffles his weight across his hips, and groans, "——I'm sorry if this is causing more t-trauma to you. I don't want to hurt you anymore than I have. If seeing your grandmother is a boundary I've crossed just tell me I'll stop, and you can just text that too if you want. New phone is on your bed. If you don't want it I can get someone to get you a different one."
-
-Then, as quickly as his words tumble past his lips, his feet carry him away and into a corridor where Dan remembers a small office being at. Then it's just him and the furniture he *doesn't* remember and Dan puts his hands on the wheels of the wheelchair, but he makes no attempt to go anywhere just yet.
-
-He plays it in his head.
-
-Over and over because Joo Jaekyung is not a man of many words and he does not fidget and he *does not* recognize trauma nor a semblance of what that might mean.
-
-Right?
-
-*"You and I. It's not okay."*
-
----
-
-Maneuvering without the wheelchair, after lying on the bed for a few hours, is easy enough. His four month long unconscious state allowed his body to heal tremendously, but the pains were real and nearly fresh as the day he'd been stabbed and he has so many questions.
-
-Where should he go?
-
-What should he do when he gets there?
-
-How does he repay the hospital fees?
-
-Is Dr. Jones still out there, preying on him?
-
-How long is your break?
-
-Were you injured during your fight?
-
-Why do you look so scared and tired?
-
-Why are you talking so much?
-
-Are we still okay?
-
-I'm not sure if we're okay, but it felt nice just before the attack, so are we okay?
-
-Why do you want me to stay?
-
-He gives the phone a once-over; its a beautiful phone from Hauwei, foldable, Kim Dan has never had anything so nice before and he plays around with it before finally conjuring up the courage to open up the contacts app for. There, against a faux-glass operating system's theme, lie two contacts:
-
-1: Grandma's Hospital Room
-
-2: Jae
-
-Dan squints, eyes pinching to make sure he sees *Jae* entered by *the* Mr. Joo Jaekyung.
-
-Weird.
-
-Weirder is that for all the things he should be considering, he really just wants to talk to Mr. Joo, so for all his worrying he allows himself the indulgence.
-
-**SENT:** *Hello, it's me Kim Dan.*
-***Read at 2112***
-
-**Jae:** *hey*
-***Read at 2112***
-
-And he is obliged the satisfaction of his indulgence and Joo Jaekyung responds as Dan is lifting his own fingers off the send button. Instantaneously.
-
-**SENT:** *This phone is really nice, thank you so much.*
-***Read at 2113***
-
-**Jae:** *im glad, wasnt sure what youd like*
-***Read at 2113***
-
-Dan's mouth opens just a bit, he's *glad?*
-
-**SENT:** *I'm glad you won your match.*
-***Read at 2114***
-
-**Jae:** *you told me to*
-***Read at 2115***
-
-**SENT:** *I told you to what? To win your match?*
-***Read at 2116***
-
-**Jae:** *yeah*
-***Read at 2116***
-
-**SENT:** *Oh, well, I suppose I did.*
-***Read at 2117***
-
-**Jae:** *are you feeling okay now*
-***Read at 2117***
-
-**Jae:** *probably not im just wondering*
-***Read at 2117***
-
-Dan manages a giggle; he isn't sure what is going on but it seems fine.
-
-**SENT:** *Are you okay?*
-***Read at 2118***
-
-**Jae:** *yeah im fine*
-***Read at 2118***
-
-**SENT:** *You don't seem fine.*
-***Read at 2118***
-
-**Jae:** *im fine stop bothering*
-***Read at 2118***
-
-**SENT:** *Could you come here? Just at the entryway of the room?*
-***Read at 2120***
-
-And for all gold and glory, Joo Jaekyung pads barefoot, now in the comfiest looking sweater and sweatpants ensemble Dan has ever seen (complete with the glasses he'd only ever seen one other time), to his room. He doesn't say a word, just stands there in the doorway like some big, scary dog, scowling while trying to force himself not to.
-
-Dan looks at him, then down to his phone, because he knows trifling with this man's time is a surefire way to get a rise out of him. Then:
-
-**SENT:** *Well, you look fine.*
-***Read at 2121***
-
-Mr. Joo retrieves his phone from his pant pocket and cranes his neck down to look at it and then pull shis other hand from it's pocket.
-
-**Jae:** *i told you i am*
-***Read at 2121***
-
-**SENT:** *I was just checking, sorry.*
-***Read at 2122***
-
-He sees Mr. Joo's jaw clench from where he lies on the bed and Kim Dan braces for the impact.
-
-**Jae:** *you did nothing wrong*
-***Read at 2122***
-
-And hell freezes over because what the *fuck?*
-
-**SENT:** *Okay! Well thanks for stopping by.*
-***Read at 2124***
-
-They look at each other, Mr. Joo bows slightly, and retreats beck to wherever he had been brooding at before.
-
-**Jae:** *yeah whatever you want*
-***Read at 2130***
-
-Dan drops the phone on the bed.
-
-He sits there, head tracing the crown molding, then picks the phone back up.
-
-**SENT:** *Can we have breakfast together in the morning.*
-***Read at 2135***
-
-**Jae:** *if thats what you want*
-***Read at 2135***
-
-**SENT:** *I would like that, I think.*
-***Read at 2135***
-
-**Jae:** *ill make sure im up then you should get some rest too*
-***Read at 2223***
-
-**SENT:** *I think I'll do that.*
-***Read at 2223***
-
-And they sleep.
-
-And Kim Dan is prepared to see the gates of heaven because is certainly far too weird to be real.
+Dan's eyes narrow at the characters on the backlit screen.
 
